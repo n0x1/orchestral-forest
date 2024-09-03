@@ -1,4 +1,4 @@
-A short enchanted-forest vibe orchestral piece of music I made  
+A short enchanted-forest vibe orchestral piece of music I made. Stereo so headphones recommended!   
 Song file: Orchestralsound.wav  // Listen also at https://soundcloud.com/cameron-manzo/orchestral-forest  
 Also listen as mp4 here:  
 
